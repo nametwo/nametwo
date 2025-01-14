@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @nametwo
-- 🌱 I’m currently learning and I am a freshman in SW at Soongsil University.
